@@ -1,1 +1,1 @@
-link chạy :https://dungbuonnuanhe.github.io/Chichi/
+link chạy :https://dungbuonnuanhe.github.io/crush4/
